@@ -1,4 +1,6 @@
-## Hi there 👋
+<img width="536" height="600" alt="image" src="https://github.com/user-attachments/assets/6844a93f-5b7c-47d8-b40e-f38160d82ad2" />
+
+yaoi luver , ok ?
 
 <!--
 **welcometomywackyworld-svg/welcometomywackyworld-svg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
