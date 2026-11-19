@@ -1,4 +1,3 @@
-<img width="536" height="600" alt="image" src="https://github.com/user-attachments/assets/6844a93f-5b7c-47d8-b40e-f38160d82ad2" />
 
 yaoi luver , ok ?
 
